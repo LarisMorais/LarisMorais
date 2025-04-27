@@ -36,6 +36,6 @@ buscando trabalhar de forma mais eficiente com dados e explorar novas oportunida
 - 📧 [larismorais26@gmail.com](mailto:larismorais26@gmail.com)
 - 📞 (31) 97591-4996
 - 🔗 [GitHub](https://github.com/LarisMorais)
-- 🔗 [LinkedIn](https://www.linkedin.com/in/larissamorais/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/larissamorais26/)
 
 🔹 **Sempre aberta a conexões e novos aprendizados!**
